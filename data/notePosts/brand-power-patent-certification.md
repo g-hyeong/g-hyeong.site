@@ -1,0 +1,1 @@
+![증명서](brand-power-patent-certification-combined.png)

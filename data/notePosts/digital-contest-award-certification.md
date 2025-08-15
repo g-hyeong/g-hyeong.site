@@ -1,0 +1,1 @@
+![증명서](digital-contest-award-certification.png)
